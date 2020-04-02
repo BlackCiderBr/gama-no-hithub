@@ -1,0 +1,1 @@
+Tenho aprendido muito com o curso. Nunca precisei usar o GIT e estou adorando tudo e como o git deixa tudo mais facil de compartilhar.
